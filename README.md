@@ -1,3 +1,4 @@
 # silver-enigma
-bo¿e
-co za gówno
+boÂ¿e
+co za gÃ³wno
+Å¼ydowkie
