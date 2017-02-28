@@ -1,4 +1,4 @@
 # silver-enigma
 bo¿e
-co za gówno
+co za gówno programowanie strukturalne 
 żydowkie
